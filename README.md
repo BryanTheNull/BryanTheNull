@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @BryanTheNull
+- 👀 I’m interested in learn new technologies!
+- 🌱 I’m currently learning English, Python, Java, Sql, C#, HTML, CSS, others...
+- 💞️ I’m looking to collaborate on new project to improve my skills.
+- 📫 How to reach me to Bryanveraguilera@gmail.com
+- 😄 Pronouns: he/hem/his
+- ⚡ Fun fact: thinking...
